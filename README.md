@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jakebigg192
+- 👀 I’m interested in games
+- 🌱 I’m currently learning how to code
+- 📫 How to reach me nc2585fogg@gmail.com
